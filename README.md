@@ -6,45 +6,45 @@ O treinamento, denominado “Missão Food Truck: O Espetáculo Gastronômico”,
 
 O foco principal é capacitar a equipe para melhorar o atendimento, aumentar o ticket médio, fortalecer a experiência do cliente e contribuir para a melhoria da margem de lucro do negócio.
 # Curadoria de Fontes
-**ACADEMIA ASSAÍ.** **Psicologia das cores: como vender mais na alimentação**. 2026. Disponível em: <URL não fornecida nas fontes>. Acesso em: 19 maio 2026.
+**ACADEMIA ASSAÍ.** **Psicologia das cores: como vender mais na alimentação**. 2026. Disponível em: <https://www.academiaassai.com.br/noticia/psicologia-das-cores>. Acesso em: 19 maio 2026.
 
-**AJINOMOTO® FOOD SERVICE.** **Fidelização de clientes: 5 estratégias no setor alimentício**. [s.d.]. Disponível em: <URL não fornecida nas fontes>. Acesso em: 19 maio 2026.
+**AJINOMOTO® FOOD SERVICE.** **Fidelização de clientes: 5 estratégias no setor alimentício**. [s.d.]. Disponível em: <https://www.ajinomotofoodservice.com.br/conteudos/fidelizacao-de-clientes>. Acesso em: 19 maio 2026.
 
 **ALCÂNTARA, R. L. C.** Recursos estratégicos para vantagem competitiva sustentável em Food Trucks. **Revista Alcance**, v. 23, n. 3, p. 352-371, [s.d.].
 
 **ASAE.** **Restauração e Bebidas: Guia de Boas Práticas**. Validado pela Direção-Geral da Saúde. [s.d.].
 
-**CARDÁPIO WEB.** **Cozinha para delivery: tudo o que você precisa saber para organizá-la**. 2024. Disponível em: <URL não fornecida nas fontes>. Acesso em: 19 maio 2026.
+**CARDÁPIO WEB.** **Cozinha para delivery: tudo o que você precisa saber para organizá-la**. 2024. Disponível em: <https://cardapioweb.com/blog/cozinha-para-delivery-saiba-tudo-sobre/>. Acesso em: 19 maio 2026.
 
- **CEGID VENDUS.** **6 Estratégias de marketing para negócios de food delivery e take away**. [s.d.]. Disponível em: <URL não fornecida nas fontes>. Acesso em: 19 maio 2026.
+ **CEGID VENDUS.** **6 Estratégias de marketing para negócios de food delivery e take away**. [s.d.]. Disponível em: <https://www.vendus.pt/blog/6-estrategias-marketing-negocios-food-delivery-take-away/>. Acesso em: 19 maio 2026.
  
-**CHEERY FOOD TRUCKS.** **Aumente as suas vendas com um Food Truck: Estratégias Eficazes para o Sucesso**. 2024. Disponível em: <URL não fornecida nas fontes>. Acesso em: 19 maio 2026.
+**CHEERY FOOD TRUCKS.** **Aumente as suas vendas com um Food Truck: Estratégias Eficazes para o Sucesso**. 2024. Disponível em: <https://cheery.pt/blog-2024-janeiro-8-aumente-as-suas-vendas-com-um-food-truck>. Acesso em: 19 maio 2026.
 
 **CIRCABC.** **Higiene e Segurança Alimentar na Restauração**. [s.d.].
 
-**CODIRECT.** **Estratégia de Marketing para Delivery: O Guia Definitivo**. [s.d.]. Disponível em: <URL não fornecida nas fontes>. Acesso em: 19 maio 2026.
+**CODIRECT.** **Estratégia de Marketing para Delivery: O Guia Definitivo**. [s.d.]. Disponível em: <https://codirect.com.br/blog/estrategia-de-marketing-para-delivery/>. Acesso em: 19 maio 2026.
 
 **DISNEY INSTITUTE.** **O jeito Disney de encantar os clientes: do atendimento excepcional ao nunca parar de crescer e acreditar**. Prefácio de Michael D. Eisner; tradução Cristina Yamagami. São Paulo: Saraiva, 2011.
 
-**FOODSHOT AI.** **Marketing para Food Truck: 25 Ideias Criativas que Vendem**. Ali Tanis. 2026. Disponível em: <URL não fornecida nas fontes>. Acesso em: 19 maio 2026.
+**FOODSHOT AI.** **Marketing para Food Truck: 25 Ideias Criativas que Vendem**. Ali Tanis. 2026. Disponível em: <https://foodshot.ai/pt/blog/ideias-marketing-food-truck>. Acesso em: 19 maio 2026.
 
-**GARCIA, Pedro.** **Mercado de delivery no Brasil: tendências para 2026**. Pick n Go, 2025. Disponível em: <URL não fornecida nas fontes>. Acesso em: 19 maio 2026.
+**GARCIA, Pedro.** **Mercado de delivery no Brasil: tendências para 2026**. Pick n Go, 2025. Disponível em: <https://pickngo.com.br/o-mercado-global-de-delivery-o-brasil-como-exemplo-de-um-fenomeno-global/>. Acesso em: 19 maio 2026.
 
-**GOOMER.** **Histórias que Vendem! 5 Dicas de Storytelling p/ Restaurante**. [s.d.]. Disponível em: <URL não fornecida nas fontes>. Acesso em: 19 maio 2026.
+**GOOMER.** **Histórias que Vendem! 5 Dicas de Storytelling p/ Restaurante**. [s.d.]. Disponível em: <https://goomer.com.br/blog/storytelling-experiencia-cliente>. Acesso em: 19 maio 2026.
 
 **ICISMEP.** **Boas Práticas para feirantes e ambulantes manipuladores de alimentos**. [s.d.]. Disponível em: <www.icismep.mg.gov.br>. Acesso em: 19 maio 2026.
 
-**MARKOSKI, Izabel.** **Food marketing: tudo o que você precisa saber para atrair mais clientes**. Tagme, 2026. Disponível em: <URL não fornecida nas fontes>. Acesso em: 19 maio 2026.
+**MARKOSKI, Izabel.** **Food marketing: tudo o que você precisa saber para atrair mais clientes**. Tagme, 2026. Disponível em: <https://tagme.com.br/food-marketing-o-que-e-como-aplicar-e-estrategias/>. Acesso em: 19 maio 2026.
 
-**PLUXEE.** **Como funciona o sistema take away?**. 2023. Disponível em: <URL não fornecida nas fontes>. Acesso em: 19 maio 2026.
+**PLUXEE.** **Como funciona o sistema take away?**. 2023. Disponível em: <https://www.pluxee.com.br/blog/sistema-take-away-restaurantes/>. Acesso em: 19 maio 2026.
 
-**POLITI ACADEMY.** **Food Truck: Estratégias para um Empreendimento de Sucesso**. 2025. Disponível em: <URL não fornecida nas fontes>. Acesso em: 19 maio 2026.
+**POLITI ACADEMY.** **Food Truck: Estratégias para um Empreendimento de Sucesso**. 2025. Disponível em: <https://politiacademy.com.br/blog/marketing-e-vendas/food-truck/>. Acesso em: 19 maio 2026.
 
 **REBOUÇAS, Ângela Nascimento Saliba.** **A relação do Neuromarketing com o comportamento de consumo: Estudo de Caso do supermercado Walmart**. Orientador: Leandro Bessa. 2017. Trabalho de Conclusão de Curso (Bacharelado em Publicidade e Propaganda) - Universidade Católica de Brasília, Brasília, 2017.
 
 **REDAÇÃO ABRAHÃO.** **5 passos para implementar o sistema take away**. Abrahão, 2022. Disponível em: <https://www.abrahao.com.br/blog/atendimento/sistema-take-away>. Acesso em: 19 maio 2026.
 
-**REDAÇÃO ABRAHÃO.** **Food Porn: o que é e como funciona essa técnica**. [s.d.]. Disponível em: <URL não fornecida nas fontes>. Acesso em: 19 maio 2026.
+**REDAÇÃO ABRAHÃO.** **Food Porn: o que é e como funciona essa técnica**. [s.d.]. Disponível em: <https://www.abrahao.com.br/blog/tecnologia-e-tendencias/food-porn>. Acesso em: 19 maio 2026.
 
 **RODRIGUES, Renata.** **A importância do branding para o posicionamento da marca de alimentos saudáveis: caso dona raiz**. 2023. Trabalho de Conclusão de Curso (Bacharelado em Administração) - Universidade Estadual de Goiás, Aparecida de Goiânia, 2023. Disponível em: <https://repositorio.ueg.br/jspui/handle/riueg/1953>. Acesso em: 19 maio 2026.
 
@@ -52,7 +52,7 @@ O foco principal é capacitar a equipe para melhorar o atendimento, aumentar o t
 
 **SEBRAE.** **Relatório de Inteligência: tendências para o setor de alimentos em 2025**. [s.d.].
 
-**UNILEVER FOOD SOLUTIONS.** **4 dicas de embalagem para delivery e linha Food**. [s.d.]. Disponível em: <URL não fornecida nas fontes>. Acesso em: 19 maio 2026.
+**UNILEVER FOOD SOLUTIONS.** **4 dicas de embalagem para delivery e linha Food**. [s.d.]. Disponível em: <https://www.unileverfoodsolutions.com.br/dicas-e-servicos/seu-negocio/melhor-embalagem-para-delivery.html>. Acesso em: 19 maio 2026.
 # Engenharia de Prompts
 
 ### 1. Processo de Construção dos Prompts
